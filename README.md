@@ -1,5 +1,6 @@
 # [[ Info-Board ]]
 ================================================
+
 [[ INTERACT FREELY ]]
 ► furry, lgbtq+, adhd & autistic
 ► gore lovers, lore enthusiasts
