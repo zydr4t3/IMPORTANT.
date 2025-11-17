@@ -1,44 +1,66 @@
-[[ INTERACT FREELY ]]
+# [ INTERACT FREELY ]
 
-► furry, lgbtq+, adhd & autistic
+*► furry, lgbtq+, adhd & autistic*
 
-► gore lovers, lore enthusiasts
+*► gore lovers, lore enthusiasts*
 
-► people from my fandoms
+*► people from my fandoms*
 
-► artists / writers
-
-
-
-[[ INTERACT W/CAUTION ]]
-
-► freakazoids
-
-► 15 and under
-
-► overly sensitive people
-
-► chronically online people
-
-► car lovers
-
-► strangers / randoms
+*► artists / writers*
 
 
 
-[[ DO NOT INTERACT ]]
+# [ INTERACT W/CAUTION ]
 
-► basic criteria
+*► freakazoids*
 
-► 13 and under, overly sensitive
+*► 15 and under*
 
-► age-reg / age-play
+*► overly sensitive people*
 
-► pro-shippers, fetishists
+*► chronically online people*
 
-► constant venters
+*► car lovers*
 
-► car lovers
+*► strangers / randoms*
 
-► dni fandom list
 
+
+# [ DO NOT INTERACT ]
+
+*► basic criteria*
+
+*► 13 and under, overly sensitive*
+
+*► age-reg / age-play*
+
+*► pro-shippers, fetishists*
+
+*► constant venters*
+
+*► car lovers*
+
+*► dni fandom list*
+
+
+# [ DNI FANDOM LIST ]
+
+*► Dandy's World (Roblox)*
+
+*► Forsaken (Roblox)*
+
+*► Hazbin Hotel (Show)*
+
+*► Helluva Boss (Show)*
+
+*► Alfred's Playhouse (Media)*
+
+*► Psychocuties (Media)*
+
+*► Terrible Mouse (Media)*
+
+*► Changed (Game)*
+
+*► Okegom (Game)*
+
+*► The Coffin Of Leyley and Andy (Game)*
